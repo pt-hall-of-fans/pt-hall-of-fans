@@ -17,8 +17,8 @@
 <br>ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <br>
 <br>
-[](https://github.com/)
-[](https://github.com/)
+[@1SPOKEISHERE](https://github.com/1SPOKEISHERE)  ' is Biggest Fan of SPOKEISHERE ! (mcyt)
+[@S9okeishere](https://github.com/S9okeishere)  ' is Biggest Fan of COMMANDER (underscore) ! (mcyt)
 [](https://github.com/)
 [](https://github.com/)
 [](https://github.com/)
