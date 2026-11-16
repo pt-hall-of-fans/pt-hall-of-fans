@@ -8,4 +8,7 @@
 
 
 <p align="center">${\textsf{\color{#fffff} °}}$ 
+
 <br>
+
+=>> [NOMINATE HERE!!!!!!!](https://pt-hall-of-fans.straw.page)
