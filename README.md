@@ -24,7 +24,7 @@
 
 [AcxerSonnellino](https://github.com/AcxerSonnellino) : is Biggest Fan of Guest1337 
 
-[](https://github.com/)  
+[architect-Kavehh](https://github.com/architect-Kavehh) : is Biggest Fan of Kaveh (Genshin Impact)
 
 [](https://github.com/)  
 
@@ -82,10 +82,6 @@
 [](https://github.com/) 
 
 [](https://github.com/) 
-
-[](https://github.com/) 
-
-[architect-Kavehh](https://github.com/architect-Kavehh) : is Biggest Fan of Kaveh (Genshin Impact)
 
 [](https://github.com/)  
 
