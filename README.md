@@ -72,23 +72,36 @@
 
 [FeofanSergeyevich](https://github.com/FeofanSergeyevich) : is Biggest Fan of Pantalone (Genshin Impact)
 
-[](https://github.com/) 
-
-[](https://github.com/) 
-
-[](https://github.com/) 
-
-[](https://github.com/) 
-
-[](https://github.com/)  
-
-[](https://github.com/)  
 
 [Itrappedfan](https://github.com/Itrappedfan): is Biggest Fan of Froggydude
 
 [ihatezlp](https://github.com/ihatwzlp) : is Biggest Fan of Mannequin_Mark (Geometry Dash)
 
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[architect-Kavehh](https://github.com/architect-Kavehh) : is Biggest Fan of Kaveh (Genshin Impact)
+
+[](https://github.com/)  
+
 [loveyoutotheend](https://github.com/loveyoutotheend) : is Biggest Fan of Don Sonellino 
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/)  
+
+[](https://github.com/)  
 
 [](https://github.com/)  
 
