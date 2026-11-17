@@ -9,7 +9,7 @@
 
 <p align="center">${\textsf{\color{#fffff} °}}$ 
 
-<br> waiting nominations!
+<br> Waiting nominations! +I forgot to say sorry,,,, But only 1 character Allowed!!! :c 
 
 =>> [NOMINATE HERE!!!!!!!](https://pt-hall-of-fans.straw.page)
 
@@ -70,7 +70,7 @@
 
 [felixylixywoah](https://github.com/felixylixywoah) : is Biggest Fan of Felix (Piggy)
 
-[](https://github.com/) 
+[FeofanSergeyevich](https://github.com/FeofanSergeyevich) : is Biggest Fan of Pantalone (Genshin Impact)
 
 [](https://github.com/) 
 
@@ -86,7 +86,7 @@
 
 [Itrappedfan](https://github.com/Itrappedfan): is Biggest Fan of Froggydude
 
-[](https://github.com/)  
+[ihatezlp](https://github.com/ihatwzlp) : is Biggest Fan of Mannequin_Mark (Geometry Dash)
 
 [loveyoutotheend](https://github.com/loveyoutotheend) : is Biggest Fan of Don Sonellino 
 
@@ -94,7 +94,87 @@
 
 [metalcardbot](https://github.com/metalcardbot) : is Biggest Fan of Ashswagg
 
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
 [mega-ambler](https://github.com/mega-ambler) : is Biggest Fan of Mega Ambler (Metal cardbot)
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[nyankit](https://github.com/nyankit) : is Biggest Fan of Ticket taker (tfc)
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
+
+[](https://github.com/) : 
 
 [Piehiker](https://github.com/Piehiker) : is Biggest Fan of MinuteTech
 
@@ -124,7 +204,7 @@
 
 [](https://github.com/)  
 
-[](https://github.com/)  
+[Theleaderofnull](https://github.com/Theleaderofnull) : is Biggest Fan of Squiddo 
 
 [](https://github.com/)  
 
