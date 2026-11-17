@@ -92,9 +92,9 @@
 
 [](https://github.com/)  
 
-[](https://github.com/)  
+[metalcardbot](https://github.com/metalcardbot) : is Biggest Fan of Ashswagg
 
-[B0osfer](https://github.com/B0osfer) : is Biggest Fan of Boosfer
+[mega-ambler](https://github.com/mega-ambler) : is Biggest Fan of Mega Ambler (Metal cardbot)
 
 [Piehiker](https://github.com/Piehiker) : is Biggest Fan of MinuteTech
 
