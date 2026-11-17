@@ -40,7 +40,7 @@
 
 [](https://github.com/)  
 
-[](https://github.com/)  
+[Chemicalshots](https://github.com/Chemicalshots) : is Biggest Fan of Wemmbu 
 
 [cosmooirl](https://github.com/cosmooirl) : is Biggest Fan of Curse The Hedgehog (CurseOfX)
 
