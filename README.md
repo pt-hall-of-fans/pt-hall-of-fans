@@ -94,87 +94,87 @@
 
 [metalcardbot](https://github.com/metalcardbot) : is Biggest Fan of Ashswagg
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/)  
 
-[](https://github.com/) : 
+[](https://github.com/)  
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
 [mega-ambler](https://github.com/mega-ambler) : is Biggest Fan of Mega Ambler (Metal cardbot)
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
 [nyankit](https://github.com/nyankit) : is Biggest Fan of Ticket taker (tfc)
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
-[](https://github.com/) : 
+[](https://github.com/) 
 
 [Piehiker](https://github.com/Piehiker) : is Biggest Fan of MinuteTech
 
