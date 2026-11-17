@@ -62,47 +62,7 @@
 
 [](https://github.com/) : 
 
-[@](https://github.com/mxuniverse) : 
 
-[@](https://github.com/mydigitalescape) : 
-
-[@](https://github.com/myshghoul) : 
-
-[@](https://github.com/n1teb0i) : 
-
-[@](https://github.com/nadd-nadd) : 
-
-[@](https://github.com/nameless-boy) : 
-
-[@](https://github.com/nataliescatorccio) : 
-
-[@](https://github.com/navistel) : 
-
-[@](https://github.com/needyourbiood) :
-
-[@](https://github.com/neuviliette) : 
-
-[@](https://github.com/neverwanted2dance) : 
-
-[@](https://github.com/nezoshokii) : 
-
-[@](https://github.com/niigo) : 
-
-[@](https://github.com/nikkifreemann) : 
-
-[@](https://github.com/ninatheklr) : 
-
-[@](https://github.com/nnyanruto) : 
-
-[@](https://github.com/obsessedgojo) : 
-
-[@](https://github.com/ojisans) : 
-
-[@](https://github.com/olliverzzfailed) : 
-
-[@](https:cology-angel) : 
-
-[@](https://github.com/opioiid) : 
 
 [@](https://github.com/orangedeltarune) : 
 
@@ -166,51 +126,6 @@
 
 [@](https://github.com/pwessure) : 
 
-[@](https://github.com/pwppy) : 
-
-[@](https://github.com/qnakin) : 
-
-[@](https://github.com/quickandsilver) : 
-
-[@](https://github.com/r0drick-heffley) : 
-
-[@](https://github.com/rakviyem) : 
-
-[@](https://github.com/ramudaa) : 
-
-[@](https://github.com/ranmarufullofenvy) : 
-
-[@](https://github.com/ravensev) : 
-
-[@](https://github.com/re0-mikage) : 
-
-[@](https://github.com/real-sonic) : 
-
-[@](https://github.com/realdustsans) : 
-
-[@](https://github.com/redvandl) : 
-
-[@](https://github.com/reggression) : 
-
-[@](https://github.com/regoregitatedsacrifice) : 
-
-[@](https://github.com/replicaofaffection) : 
-
-[@](https://github.com/retribite) : 
-
-[@](https://github.com/reveristcalico) : 
-
-[@](https://github.com/riddledbatz) : 
-
-[@](https://github.com/ringmasterai) : 
-
-[@](https://github.com/rinsagi) : 
-
-[@](https://github.com/romerlca) : 
-
-[@](https://github.com/ruskaromas) : 
-
-[@](https://github.com/rxquiems) : 
 
 [@](https://github.com/ryomxnsukuna) : 
 
