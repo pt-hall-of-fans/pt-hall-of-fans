@@ -9,7 +9,7 @@
 
 <p align="center">${\textsf{\color{#fffff} °}}$ 
 
-<br> wip wip. ^_^"""..... Trying to focus on the spaces between the Githubs... WIP 
+<br> wip wip. ^_^"""..... Trying to focus on the spaces between the Githubs... WIP  NON COPYING!! :c 
 
 =>> [NOMINATE HERE!!!!!!!](https://pt-hall-of-fans.straw.page)
 
@@ -186,13 +186,13 @@
 
 [@brittlestars](https://github.com/brittlestars) : ponytown's agott arklaum
 
-[@c0rv1dd13d](https://github.com/c0rv1dd13d) : ponytown's tailgate
+[@c0rv1dd13d](https://github.com/c0rv1dd13d) : 
 
 [@c1nnam0n-to4st-crunch](https://github.com/c1nnam0n-to4st-crunch) : ponytown's mitsuri kanroji
 
 [@cattypillaar](https://github.com/cattypillaar) : ponytown's elquackity
 
-[@cannivore](https://github.com/cannivore) : ponytown's yami yugi
+[@cannivore](https://github.com/cannivore) : 
 
 [@canto8](https://github.com/canto8) : ponytown's ishmael
 
@@ -200,61 +200,61 @@
 
 [@ccggmadness](https://github.com/ccggmadness) : ponytown's gigi murin
 
-[@ceekom](https://github.com/ceekom) : ponytown's takemichi
+[@ceekom](https://github.com/ceekom) : 
 
-[@cherriejam](https://github.com/cherriejam) : ponytown's luna club
+[@cherriejam](https://github.com/cherriejam) : 
 
-[@chevyimpalas67](https://github.com/chevyimpalas67) : ponytown's dean winchester
+[@chevyimpalas67](https://github.com/chevyimpalas67) : 
 
-[@chick-habit](https://github.com/chick-habit) : ponytown's murdoc niccals
+[@chick-habit](https://github.com/chick-habit) : 
 
-[@chickenroulette](https://github.com/chickenroulette) : ponytown's shedletsky
+[@chickenroulette](https://github.com/chickenroulette) : 
 
-[@cindercrestsglory](https://github.com/cindercrestsglory) : ponytown's lloyd garmadon
+[@cindercrestsglory](https://github.com/cindercrestsglory) : 
 
-[@ciownzy](https://github.com/cIownzy) : ponytown's minutetech
+[@ciownzy](https://github.com/cIownzy) : 
 
-[@cliffs-inferno](https://github.com/cliffs-inferno) : ponytown's pannacotta fugo
+[@cliffs-inferno](https://github.com/cliffs-inferno) : 
 
-[@clown-pierce](https://github.com/clown-pierce) : ponytown's clownpierce
+[@clown-pierce](https://github.com/clown-pierce) : 
 
-[@cloveredfields](https://github.com/cloveredfields) : ponytown's directorfies
+[@cloveredfields](https://github.com/cloveredfields) : 
 
-[@clownpierce3](https://github.com/clownpierce3) : ponytown's guest 1337
+[@clownpierce3](https://github.com/clownpierce3) : 
 
-[@colorfulmush](https://github.com/colorfulmush) : ponytown's d3rlord3
+[@colorfulmush](https://github.com/colorfulmush) : 
 
-[@computerfanaticc](https://github.com/computerfanaticc) : ponytown's harley sawyer
+[@computerfanaticc](https://github.com/computerfanaticc) : 
 
-[@computerrtime](https://github.com/computerrtime) : ponytown's dave strider
+[@computerrtime](https://github.com/computerrtime) : 
 
-[@conexlonn](https://github.com/conexlonn) : ponytown's sharpness
+[@conexlonn](https://github.com/conexlonn) : 
 
-[@constellated-night](https://github.com/constellated-night) : ponytown's eggchan
+[@constellated-night](https://github.com/constellated-night) : 
 
-[@constrz](https://github.com/constrz) : ponytown's reze
+[@constrz](https://github.com/constrz) : 
 
-[@copperbottoms](https://github.com/copperbottoms) : ponytown's rodney copperbottom
+[@copperbottoms](https://github.com/copperbottoms) : 
 
-[@corintheuss](https://github.com/corintheuss) : ponytown's corinthian (sandman)
+[@corintheuss](https://github.com/corintheuss) : 
 
-[@cozywarmth](https://github.com/cozywarmth) : ponytown's kakavasha
+[@cozywarmth](https://github.com/cozywarmth) : 
 
-[@crackpawt](https://github.com/crackpawt) : ponytown's sei seragaki
+[@crackpawt](https://github.com/crackpawt) : 
 
-[@creampufflings](https://github.com/creampufflings) : ponytown's polarcub
+[@creampufflings](https://github.com/creampufflings) : 
 
-[@crisisshow](https://github.com/crisisshow) : ponytown's noctis lucis caelum
+[@crisisshow](https://github.com/crisisshow) : 
 
-[@crumbbii](https://github.com/crumbbii) : ponytown's c!technoblade
+[@crumbbii](https://github.com/crumbbii) : 
 
-[@cryptidist](https://github.com/cryptidist) : ponytown's invader zim fan
+[@cryptidist](https://github.com/cryptidist) : 
 
-[@cuddling-encouraged-heavily-dnc](https://github.com/Cuddling-Encouraged-heavily-Dnc) : ponytown's 1x1x1
+[@cuddling-encouraged-heavily-dnc](https://github.com/Cuddling-Encouraged-heavily-Dnc) : 
 
-[@cyberiife](https://github.com/cyberiife) : ponytown's conner
+[@cyberiife](https://github.com/cyberiife) : 
 
-[@cybermiyano](https://github.com/cybermiyano) : ponytown's nico rosberg
+[@cybermiyano](https://github.com/cybermiyano) : 
 
 [@darksanctuary](https://github.com/darksanctuary) : ponytown's roaring knight
 
