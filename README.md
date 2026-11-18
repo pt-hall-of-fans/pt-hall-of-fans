@@ -40,6 +40,18 @@
 
 [applesnaxxx](https://github.com/applesnaxxx) : is Biggest Fan of Dev (Mcyt)
 
+[antoneIIi](https://github.com/antoneIIi) : is Biggest Fan of Kimi Antonelli
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/)  
+
+[](https://github.com/)  
+
 [Black-0pal](https://github.com/Black-0pal) : is Biggest Fan of Sleepy Sniper (tf2)
 
 [Beetlesarecoolerthanme](https://github.com/Beetlesarecoolerthanme) : is Biggest Fan of Sword (Phighting!)
@@ -212,7 +224,7 @@
 
 [pIanetlords](https://github.com/pIanetlords) : is Biggest Fan of Planetlord
 
-[](https://github.com/)  
+[Pathogen-Interface](https://github.com/Pathogen-Interface) : is Biggest Fan of Rocket (Phighting!)
 
 [](https://github.com/)  
 
