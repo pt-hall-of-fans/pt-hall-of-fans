@@ -38,7 +38,7 @@
 
 [architect-Kavehh](https://github.com/architect-Kavehh) : is Biggest Fan of Kaveh (Genshin Impact)
 
-[](https://github.com/)  
+[applesnaxxx](https://github.com/applesnaxxx) : is Biggest Fan of Dev (Mcyt)
 
 [Black-0pal](https://github.com/Black-0pal) : is Biggest Fan of Sleepy Sniper (tf2)
 
