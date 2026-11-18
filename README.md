@@ -22,6 +22,18 @@
 
 [1SPOKEISHERE](https://github.com/1SPOKEISHERE) : is Biggest Fan of Spokeishere
 
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/)  
+
+[0SEVN7](https://github.com/0SEVN7) : is Biggest Fan of Amy Rose
+
 [AcxerSonnellino](https://github.com/AcxerSonnellino) : is Biggest Fan of Guest1337 
 
 [architect-Kavehh](https://github.com/architect-Kavehh) : is Biggest Fan of Kaveh (Genshin Impact)
@@ -30,7 +42,7 @@
 
 [Black-0pal](https://github.com/Black-0pal) : is Biggest Fan of Sleepy Sniper (tf2)
 
-[](https://github.com/)  
+[Beetlesarecoolerthanme](https://github.com/Beetlesarecoolerthanme) : is Biggest Fan of Sword (Phighting!)
 
 [](https://github.com/)  
 
@@ -72,6 +84,17 @@
 
 [FeofanSergeyevich](https://github.com/FeofanSergeyevich) : is Biggest Fan of Pantalone (Genshin Impact)
 
+[HoroNekko](https://github.com/HoroNekko) : is Biggest Fan of Scaramouche (Genshin Impact)
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/)  
+
+[](https://github.com/)  
 
 [Itrappedfan](https://github.com/Itrappedfan): is Biggest Fan of Froggydude
 
