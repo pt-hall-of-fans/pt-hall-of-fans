@@ -210,7 +210,7 @@
 
 [Piehiker](https://github.com/Piehiker) : is Biggest Fan of MinuteTech
 
-[pIanetlords](https://github.com/pianetlords) : is Biggest Fan of Planetlord
+[pIanetlords](https://github.com/pIanetlords) : is Biggest Fan of Planetlord
 
 [](https://github.com/)  
 
@@ -250,6 +250,6 @@
 
 [](https://github.com/)  
 
-[Xreqy-qrays](https://github.com/XXreqy-qrays) : is Biggest Fan of THE DARK LORD (Ava/Avm)
+[Xreqy-qrays](https://github.com/Xreqy-qrays) : is Biggest Fan of THE DARK LORD (Ava/Avm)
 
 
