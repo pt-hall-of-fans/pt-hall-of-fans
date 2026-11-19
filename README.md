@@ -98,7 +98,7 @@
 
 [HoroNekko](https://github.com/HoroNekko) : is Biggest Fan of Scaramouche (Genshin Impact)
 
-[](https://github.com/) 
+[Gatita-here](https://github.com/Gatita-here) : is Biggest Fan of GroxMc
 
 [](https://github.com/) 
 
@@ -180,7 +180,7 @@
 
 [mega-ambler](https://github.com/mega-ambler) : is Biggest Fan of Mega Ambler (Metal cardbot)
 
-[](https://github.com/) 
+[MissingTextuer](https://github.com/MissingTextuer) : is Biggest Fan of Mr.Puzzles (/Calling all Villains/SMG4)
 
 [](https://github.com/) 
 
@@ -196,13 +196,13 @@
 
 [](https://github.com/) 
 
-[](https://github.com/) 
+[N0VALIT3](https://github.com/N0VALIT3) : is Biggest Fan of Medkit (Phighting!)
 
 [nyankit](https://github.com/nyankit) : is Biggest Fan of Ticket taker (tfc)
 
 [](https://github.com/) 
 
-[](https://github.com/) 
+[onemorewish](https://github.com/onemorewish) : is Biggest Fan of Princezam 
 
 [](https://github.com/) 
 
