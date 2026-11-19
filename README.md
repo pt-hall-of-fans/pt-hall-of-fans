@@ -58,7 +58,7 @@
 
 [B0osfer](https://github.com/B0osfer) : is Biggest Fan of Boosfer
 
-[](https://github.com/)  
+[basicISbasic](https://github.com/basicISbasic) : is Biggest Fan of Cell112767
 
 [](https://github.com/)  
 
@@ -96,9 +96,19 @@
 
 [FeofanSergeyevich](https://github.com/FeofanSergeyevich) : is Biggest Fan of Pantalone (Genshin Impact)
 
-[HoroNekko](https://github.com/HoroNekko) : is Biggest Fan of Scaramouche (Genshin Impact)
+[Fishtnet](https://github.com/Fishtnet) : is Biggest Fan of Guppy (Regretevator)
 
 [Gatita-here](https://github.com/Gatita-here) : is Biggest Fan of GroxMc
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/)  
+
+[](https://github.com/)  
+
+[HoroNekko](https://github.com/HoroNekko) : is Biggest Fan of Scaramouche (Genshin Impact)
 
 [](https://github.com/) 
 
