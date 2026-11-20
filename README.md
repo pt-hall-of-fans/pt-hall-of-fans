@@ -260,13 +260,13 @@
 
 [@theleaderofnull](https://github.com/Theleaderofnull) : is Biggest Fan of Squiddo 
 
-[](https://github.com/)  
+[@ultronirl](https://github.com/ultronirl) : is Biggest Fan of Ultron
 
 [](https://github.com/)  
 
 [](https://github.com/)  
 
-[](https://github.com/)  
+[@yubelsrevenge](https://github.com/yubelsrevenge) : is Biggest Fan of Judai Yuki Yugioh gx
 
 [](https://github.com/)  
 
