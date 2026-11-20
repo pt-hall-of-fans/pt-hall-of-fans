@@ -192,7 +192,7 @@
 
 [MissingTextuer](https://github.com/MissingTextuer) : is Biggest Fan of Mr.Puzzles (/Calling all Villains/SMG4)
 
-[](https://github.com/) 
+[Megumiyuji](https://github.com/Megumiyuji) : is Biggest Fan of Megumi (jjk)
 
 [](https://github.com/) 
 
