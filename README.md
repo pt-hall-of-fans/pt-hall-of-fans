@@ -248,15 +248,15 @@
 
 [@sweetdovey](https://github.com/sweetdovey) : is Biggest Fan of One (BFDI)
 
-[](https://github.com/)  
+[@skephaloyaoi](https://github.com/skephaloyaoi) : is Biggest Fan of Badboyhalo (mcyt)
+
+[@spawnren](https://github.com/spawnren) : is Biggest Fan of Kris (deltarune)
 
 [](https://github.com/)  
 
 [](https://github.com/)  
 
-[](https://github.com/)  
-
-[](https://github.com/)  
+[@twottimey](https://github.com/twottimey) : is Biggest Fan of Two time 
 
 [@theleaderofnull](https://github.com/Theleaderofnull) : is Biggest Fan of Squiddo 
 
