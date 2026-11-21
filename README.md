@@ -68,7 +68,7 @@
 
 [@cosmooirl](https://github.com/cosmooirl) : is Biggest Fan of Curse The Hedgehog (CurseOfX)
 
-[](https://github.com/) 
+[@coinsflips](https://github.com/coinsflips) : is Biggest Fan of Chance
 
 [](https://github.com/) 
 
