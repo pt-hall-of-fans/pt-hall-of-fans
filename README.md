@@ -46,7 +46,7 @@
 
 [@angeldearest](https://github.com/angeldearest) : is Biggest Fan of Castiel (Supernatural)
 
-[](https://github.com/) 
+[@adiost0reador](https://github.com/AdiosT0reador) : is Biggest Fan of Paintbrush (Inanimate Insanity)
 
 [](https://github.com/) 
 
