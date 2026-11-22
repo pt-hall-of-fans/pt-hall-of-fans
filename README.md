@@ -28,7 +28,7 @@
 
 [](https://github.com/) 
 
-[](https://github.com/) 
+[](https://github.com/2099s) 
 
 [@68state](https://github.com/68state) : is Biggest Fan of Murdoc Niccals (Gorrilaz)
 
@@ -42,7 +42,7 @@
 
 [@antoneIIi](https://github.com/antoneIIi) : is Biggest Fan of Kimi Antonelli
 
-[](https://github.com/) 
+[](https://github.com/angeldearest) 
 
 [](https://github.com/) 
 
@@ -70,7 +70,17 @@
 
 [@coinsflips](https://github.com/coinsflips) : is Biggest Fan of Chance
 
-[](https://github.com/) 
+[](https://github.com/Crazybloxer) 
+
+[](https://github.com/Corruptedscall) 
+
+[](https://github.com/casinosdebt) 
+
+[](https://github.com/cowboymountain) 
+
+[](https://github.com/dried-fishbone) 
+
+[](https://github.com/deanwnchstr) 
 
 [](https://github.com/) 
 
@@ -80,17 +90,7 @@
 
 [](https://github.com/) 
 
-[](https://github.com/) 
-
-[](https://github.com/) 
-
-[](https://github.com/) 
-
-[](https://github.com/) 
-
-[](https://github.com/) 
-
-[](https://github.com/) 
+[](https://github.com/f1refist) 
 
 [@felixylixywoah](https://github.com/felixylixywoah) : is Biggest Fan of Felix (Piggy)
 
@@ -124,9 +124,9 @@
 
 [](https://github.com/) 
 
-[](https://github.com/) 
+[](https://github.com/Jeverus) 
 
-[](https://github.com/) 
+[](https://github.com/kienelle) 
 
 [](https://github.com/)  
 
@@ -154,7 +154,7 @@
 
 [](https://github.com/)  
 
-[](https://github.com/) 
+[](https://github.com/meowfilled) 
 
 [](https://github.com/) 
 
@@ -238,7 +238,7 @@
 
 [@panacealove](https://github.com/panacealove) : is Biggest Fan of Parrotx2
 
-[](https://github.com/)  
+[](https://github.com/Pinckore)  
 
 [](https://github.com/)  
 
