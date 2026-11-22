@@ -28,7 +28,7 @@
 
 [](https://github.com/) 
 
-[](https://github.com/2099s) 
+[@2099s](https://github.com/2099s) : is Biggest Fan of Miguel O'Hara (ATSV/Marvel comics)
 
 [@68state](https://github.com/68state) : is Biggest Fan of Murdoc Niccals (Gorrilaz)
 
@@ -42,7 +42,7 @@
 
 [@antoneIIi](https://github.com/antoneIIi) : is Biggest Fan of Kimi Antonelli
 
-[](https://github.com/angeldearest) 
+[@angeldearest](https://github.com/angeldearest) : is Biggest Fan of Castiel (Supernatural)
 
 [](https://github.com/) 
 
@@ -70,19 +70,17 @@
 
 [@coinsflips](https://github.com/coinsflips) : is Biggest Fan of Chance
 
-[](https://github.com/Crazybloxer) 
+[@crazybloxer](https://github.com/Crazybloxer) : is Biggest Fan of Crazyblox (Flood escape)
 
-[](https://github.com/Corruptedscall) 
+[@corruptedscall](https://github.com/Corruptedscall) : is the first Biggest Fan of Father Overseer
 
-[](https://github.com/casinosdebt) 
+[@casinosdebt](https://github.com/casinosdebt) : is Biggest Fan of Lance (BGH-Forsaken)
 
-[](https://github.com/cowboymountain) 
+[@cowboymountain](https://github.com/cowboymountain) : is Biggest Fan of Benny Lafitte (Supernatural)
 
-[](https://github.com/dried-fishbone) 
+[@dried-fishbone](https://github.com/dried-fishbone) : is Biggest Fan of Investigativelris (Forsaken)
 
-[](https://github.com/deanwnchstr) 
-
-[](https://github.com/) 
+[@deanwnchstr](https://github.com/deanwnchstr) : is Biggest Fan of Dean Winchester (Supernatural)
 
 [](https://github.com/) 
 
@@ -90,7 +88,9 @@
 
 [](https://github.com/) 
 
-[](https://github.com/f1refist) 
+[](https://github.com/) 
+
+[@f1refist](https://github.com/f1refist) : is Biggest Fan of Portgas (One piece)
 
 [@felixylixywoah](https://github.com/felixylixywoah) : is Biggest Fan of Felix (Piggy)
 
@@ -124,9 +124,9 @@
 
 [](https://github.com/) 
 
-[](https://github.com/Jeverus) 
+[@jeverus](https://github.com/Jeverus) : is Biggest Fan of Slasher 
 
-[](https://github.com/kienelle) 
+[@kienelle](https://github.com/kienelle): is Biggest Fan of Dev (Mcyy)
 
 [](https://github.com/)  
 
@@ -154,7 +154,7 @@
 
 [](https://github.com/)  
 
-[](https://github.com/meowfilled) 
+[@meowfilled](https://github.com/meowfilled) : is Biggest Fan of Pr3typrincess (Forsaken)
 
 [](https://github.com/) 
 
@@ -238,7 +238,7 @@
 
 [@panacealove](https://github.com/panacealove) : is Biggest Fan of Parrotx2
 
-[](https://github.com/Pinckore)  
+[@pinckore](https://github.com/Pinckore) : is Biggest Fan of SMG3 (SMG4)
 
 [](https://github.com/)  
 
