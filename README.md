@@ -80,7 +80,7 @@
 
 [@cowboymountain](https://github.com/cowboymountain) : is Biggest Fan of Benny Lafitte (Supernatural)
 
-[@dried-fishbone](https://github.com/dried-fishbone) : is Biggest Fan of Investigativelris (Forsaken)
+[](https://github.com/) 
 
 [@deanwnchstr](https://github.com/deanwnchstr) : is Biggest Fan of Dean Winchester (Supernatural)
 
@@ -124,13 +124,13 @@
 
 [@ihatezlp](https://github.com/ihatwzlp) : is Biggest Fan of Mannequin_Mark (Geometry Dash)
 
-[](https://github.com/) 
+[@investigative-Iris ](https://github.com/Investigative-Iris) : is Biggest Fan of Investigativelris (Forsaken) 
 
 [@jeverus](https://github.com/Jeverus) : is Biggest Fan of Slasher 
 
 [@kienelle](https://github.com/kienelle): is Biggest Fan of Dev (Mcyy)
 
-[](https://github.com/)  
+[@kiwiconiccc](https://github.com/kiwiconiccc) : is Biggest Fan of Saiki Kusuo
 
 [@loveyoutotheend](https://github.com/loveyoutotheend) : is Biggest Fan of Don Sonellino 
 
@@ -168,23 +168,7 @@
 
 [](https://github.com/) 
 
-[](https://github.com/) 
-
-[](https://github.com/) 
-
-[](https://github.com/) 
-
-[](https://github.com/) 
-
-[](https://github.com/) 
-
-[](https://github.com/) 
-
-[](https://github.com/) 
-
-[](https://github.com/) 
-
-[](https://github.com/) 
+[@Mmangoestmango](https://github.com/MangoestMango) : is Biggest Fan of Falsity™ (Xqree Series)
 
 [](https://github.com/) 
 
@@ -272,7 +256,7 @@
 
 [](https://github.com/)  
 
-[](https://github.com/)  
+[@wovies](https://github.com/Wovies) : is Biggest Fan of Wifies
 
 [@xreqy-qrays](https://github.com/Xreqy-qrays) : is Biggest Fan of THE DARK LORD (Ava/Avm)
 
