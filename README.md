@@ -40,7 +40,7 @@
 
 [@architect-Kavehh](https://github.com/architect-Kavehh) : is Biggest Fan of Kaveh (Genshin Impact)
 
-[@applesnaxxx](https://github.com/applesnaxxx) : is Biggest Fan of Dev (Mcyt)
+[@altruistdeviil](https://github.com/altruistdeviil) : is Biggest Fan of Misaki Katsuo
 
 [@antoneIIi](https://github.com/antoneIIi) : is Biggest Fan of Kimi Antonelli
 
@@ -80,7 +80,7 @@
 
 [@cowboymountain](https://github.com/cowboymountain) : is Biggest Fan of Benny Lafitte (Supernatural)
 
-[](https://github.com/) 
+[@cloveredfields](https://github.com/CloveredFields) : is Biggest Fan of Directorfies 
 
 [@deanwnchstr](https://github.com/deanwnchstr) : is Biggest Fan of Dean Winchester (Supernatural)
 
@@ -124,11 +124,23 @@
 
 [@ihatezlp](https://github.com/ihatwzlp) : is Biggest Fan of Mannequin_Mark (Geometry Dash)
 
-[@investigative-Iris ](https://github.com/Investigative-Iris) : is Biggest Fan of Investigativelris (Forsaken) 
+[@investigative-iris ](https://github.com/Investigative-Iris) : is Biggest Fan of Investigativelris (Forsaken) 
 
 [@jeverus](https://github.com/Jeverus) : is Biggest Fan of Slasher 
 
-[@kienelle](https://github.com/kienelle): is Biggest Fan of Dev (Mcyy)
+[@kienelle](https://github.com/kienelle): is Biggest Fan of Dev (Mcyt)
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[@kirbysaps](https://github.com/kirbysaps) : is Biggest Fan of Saparata
+
+[](https://github.com/)  
+
+[](https://github.com/)  
 
 [@kiwiconiccc](https://github.com/kiwiconiccc) : is Biggest Fan of Saiki Kusuo
 
@@ -245,6 +257,18 @@
 [@twottimey](https://github.com/twottimey) : is Biggest Fan of Two time 
 
 [@theleaderofnull](https://github.com/Theleaderofnull) : is Biggest Fan of Squiddo 
+
+[@tfpknockout](https://github.com/tfpknockout) : is Biggest Fan of Knockout (Transformers Prime)
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/)  
+
+[](https://github.com/)  
 
 [@ultronirl](https://github.com/ultronirl) : is Biggest Fan of Ultron
 
