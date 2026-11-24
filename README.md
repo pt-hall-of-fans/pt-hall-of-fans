@@ -48,7 +48,7 @@
 
 [@adiost0reador](https://github.com/AdiosT0reador) : is Biggest Fan of Paintbrush (Inanimate Insanity)
 
-[](https://github.com/) 
+[@adonisthefish](https://github.com/adonisthefish) : is Biggest Fan of Cipher (Honkai:starrail)
 
 [](https://github.com/)  
 
@@ -86,7 +86,7 @@
 
 [@dearvoidstar](https://github.com/dearvoidstar) : is Biggest Fan of Noli
 
-[](https://github.com/) 
+[@doomedsoda](https://github.com/doomedsoda) : is Biggest Fan of Mafuyu 
 
 [](https://github.com/) 
 
@@ -180,7 +180,7 @@
 
 [](https://github.com/) 
 
-[@Mmangoestmango](https://github.com/MangoestMango) : is Biggest Fan of Falsity™ (Xqree Series)
+[@mangoestmango](https://github.com/MangoestMango) : is Biggest Fan of Falsity™ (Xqree Series)
 
 [](https://github.com/) 
 
