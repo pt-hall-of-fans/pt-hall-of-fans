@@ -84,7 +84,7 @@
 
 [@deanwnchstr](https://github.com/deanwnchstr) : is Biggest Fan of Dean Winchester (Supernatural)
 
-[](https://github.com/) 
+[@dearvoidstar](https://github.com/dearvoidstar) : is Biggest Fan of Noli
 
 [](https://github.com/) 
 
@@ -118,7 +118,7 @@
 
 [](https://github.com/)  
 
-[](https://github.com/)  
+[@ihatevines](https://github.com/ihatevines) : is Biggest Fan of IU
 
 [@itrappedfan](https://github.com/Itrappedfan): is Biggest Fan of Froggydude
 
@@ -250,7 +250,7 @@
 
 [@spawnren](https://github.com/spawnren) : is Biggest Fan of Kris (deltarune)
 
-[](https://github.com/)  
+[@supersunooic](https://github.com/supersunooic) : is Biggest Fan of Sunoo
 
 [](https://github.com/)  
 
