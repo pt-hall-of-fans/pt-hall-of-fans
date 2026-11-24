@@ -50,7 +50,7 @@
 
 [@adonisthefish](https://github.com/adonisthefish) : is Biggest Fan of Cipher (Honkai:starrail)
 
-[](https://github.com/)  
+[@angel-iivan](https://github.com/angel-iivan) : is Biggest Fan of Ivan (Alnst)
 
 [](https://github.com/)  
 
