@@ -62,9 +62,9 @@
 
 [@basicISbasic](https://github.com/basicISbasic) : is Biggest Fan of Cell112767
 
-[](https://github.com/)  
+[@branzie](https://github.com/branzie) : is Biggest Fan of Branzy
 
-[](https://github.com/)  
+[@bloodybeautiful](https://github.com/Bloodybeautiful) : is Biggest Fan of Truman Burbank (The Truman Show)
 
 [@chemicalshot](https://github.com/Chemicalshot) : is Biggest Fan of Wemmbu 
 
