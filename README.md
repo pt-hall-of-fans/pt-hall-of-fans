@@ -314,7 +314,7 @@
 
 [@vilicaleb](https://github.com/vilicaleb) : is Biggest Fan of Caleb244
 
-[](https://github.com/)  
+[@walkingcorps](https://github.com/WalkingCorps) : is Biggest Fan of Ananas Dragon Cookie (Cookie Run Kingdom)
 
 [@wovies](https://github.com/Wovies) : is Biggest Fan of Wifies
 
