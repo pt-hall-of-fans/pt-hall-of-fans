@@ -100,7 +100,7 @@
 
 [@doomedsoda](https://github.com/doomedsoda) : is Biggest Fan of Mafuyu 
 
-[](https://github.com/) 
+[@flaroisons](https://github.com/FLORAISONS) : is Biggest Fan of Matt Dusekkar (Admin/Forsaken)
 
 [@fkxxu](https://github.com/fkxxu) : is Biggest Fan of Pierrot (TFC)
 
