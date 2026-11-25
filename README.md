@@ -82,6 +82,18 @@
 
 [@cloveredfields](https://github.com/CloveredFields) : is Biggest Fan of Directorfies 
 
+[@curs1v3](https://github.com/Curs1v3) : is Biggest Fan of Fell Sans (Underfall AU)
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/)  
+
+[](https://github.com/)  
+
 [@deanwnchstr](https://github.com/deanwnchstr) : is Biggest Fan of Dean Winchester (Supernatural)
 
 [@dearvoidstar](https://github.com/dearvoidstar) : is Biggest Fan of Noli
@@ -90,7 +102,7 @@
 
 [](https://github.com/) 
 
-[](https://github.com/) 
+[@fkxxu](https://github.com/fkxxu) : is Biggest Fan of Pierrot (TFC)
 
 [@f1refist](https://github.com/f1refist) : is Biggest Fan of Portgas (One piece)
 
@@ -114,7 +126,7 @@
 
 [@horrorluvsribs](https://github.com/horrorluvsribs) : is Biggest Fan of Horror Sans (Horrortale)
 
-[](https://github.com/) 
+[@hey1tzatlas](https://github.com/Hey1tzAtlas) : is Biggest Fan of Time Shadow Cookie (Cookie Run Kingdom)
 
 [](https://github.com/)  
 
@@ -125,6 +137,18 @@
 [@ihatezlp](https://github.com/ihatwzlp) : is Biggest Fan of Mannequin_Mark (Geometry Dash)
 
 [@investigative-iris ](https://github.com/Investigative-Iris) : is Biggest Fan of Investigativelris (Forsaken) 
+
+[@infextion](https://github.com/infextion) : is Biggest Fan of Chris Redfield (Resident Evil )
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/)  
+
+[](https://github.com/)  
 
 [@jeverus](https://github.com/Jeverus) : is Biggest Fan of Slasher 
 
@@ -170,7 +194,7 @@
 
 [@meowfilled](https://github.com/meowfilled) : is Biggest Fan of Pr3typrincess (Forsaken)
 
-[](https://github.com/) 
+[@med-bow](https://github.com/med-bow) : is Biggest Fan of Angel Bow (Phighting!)
 
 [](https://github.com/) 
 
@@ -192,7 +216,7 @@
 
 [@megumiyuji](https://github.com/Megumiyuji) : is Biggest Fan of Megumi (jjk)
 
-[](https://github.com/) 
+[@m4rkus101](https://github.com/M4rkus101) : is Biggest Fan of Rochas313
 
 [](https://github.com/) 
 
@@ -202,7 +226,7 @@
 
 [](https://github.com/) 
 
-[](https://github.com/) 
+[@narithemakosh4rk](https://github.com/NariTheMakoSh4rk) : is Biggest Fan of Contractee (forsaken)
 
 [@n0valit3](https://github.com/N0VALIT3) : is Biggest Fan of Medkit (Phighting!)
 
@@ -212,7 +236,7 @@
 
 [@onemorewish](https://github.com/onemorewish) : is Biggest Fan of Princezam 
 
-[](https://github.com/) 
+[@neutaa4a](https://github.com/neutaa4a) : is Biggest Fan of Gojo (Jjk)
 
 [](https://github.com/) 
 
@@ -238,7 +262,9 @@
 
 [@pinckore](https://github.com/Pinckore) : is Biggest Fan of SMG3 (SMG4)
 
-[](https://github.com/)  
+[@pupvalite](https://github.com/pupvalite) : is Biggest Fan of Astro Novalite (Dandys world)
+
+[@putmetorestimnotyourstosave](https://github.com/putmetorestimnotyourstosave) : is Biggest Fan of Bryan Hodukavich (Resident Evil)
 
 [](https://github.com/)  
 
@@ -252,6 +278,16 @@
 
 [@supersunooic](https://github.com/supersunooic) : is Biggest Fan of Sunoo
 
+[@sonnellinoenthusiast](https://github.com/SONNELLINOENTHUSIAST) : is Biggest Fan of Mafioso
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/) 
+
+[](https://github.com/)  
+
 [](https://github.com/)  
 
 [@twottimey](https://github.com/twottimey) : is Biggest Fan of Two time 
@@ -260,11 +296,11 @@
 
 [@tfpknockout](https://github.com/tfpknockout) : is Biggest Fan of Knockout (Transformers Prime)
 
-[](https://github.com/) 
+[@thesorrowingbody](https://github.com/thesorrowingbody) : is Biggest Fan of Sunday(Honkai: starrail)
 
-[](https://github.com/) 
+[@timidcandle](https://github.com/timidcandle) : is Biggest Fan of Waxwell (Dandys world)
 
-[](https://github.com/) 
+[@theultimatekohamster](https://github.com/theultimatekohamster) : is Biggest Fan of Itrapped
 
 [](https://github.com/)  
 
@@ -276,7 +312,7 @@
 
 [](https://github.com/)  
 
-[@yubelsrevenge](https://github.com/yubelsrevenge) : is Biggest Fan of Judai Yuki Yugioh gx
+[@vilicaleb](https://github.com/vilicaleb) : is Biggest Fan of Caleb244
 
 [](https://github.com/)  
 
@@ -284,4 +320,15 @@
 
 [@xreqy-qrays](https://github.com/Xreqy-qrays) : is Biggest Fan of THE DARK LORD (Ava/Avm)
 
+[](https://github.com/) 
+
+[@yubelsrevenge](https://github.com/yubelsrevenge) : is Biggest Fan of Judai Yuki Yugioh gx
+
+[@yurinpd](https://github.com/yurinpd) : is Biggest Fan of Sancho (Limbus Company)
+
+[](https://github.com/) 
+
+[@z4warud0](https://github.com/Z4WARUD0) : is Biggest Fan of Josuke Higashikata (Jjba part4)
+
+[](https://github.com/)  
 
