@@ -9,9 +9,9 @@
 <br>
 
 
-<p align="center">${\textsf{\color{#fffff} °}}$ 
+<p align="center"> ˙𐃷˙
 
-<br> Waiting nominations! +I forgot to say sorry,,,, But only 1 character Allowed!!! :c 
+<br> ꉂ(˵˃ ᗜ ˂˵) Waiting nominations! +I forgot to say sorry,,,, But only 1 character Allowed!!! ˙𐃷˙
 
 =>> [NOMINATE HERE!!!!!!!](https://pt-hall-of-fans.straw.page)
 
