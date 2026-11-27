@@ -136,7 +136,7 @@ lways online Hey!! Nominate Someone!! or Yourself !!
 
 [@doomedsoda](https://github.com/doomedsoda) : is Biggest Fan of Mafuyu 
 
-[](https://github.com/) 
+[@disorderlyfashion](https://github.com/disorderlyfashion) : is Biggest Fan of Blitzø (Helluva Boss)
 
 [](https://github.com/) 
 
